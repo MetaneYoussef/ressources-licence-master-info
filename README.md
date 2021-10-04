@@ -30,3 +30,7 @@ https://drive.google.com/folderview?id=12ml9wFnIt82CjEyjDtslhVoFp8GwaNtD
 - https://drive.google.com/drive/folders/1AF2zanlPMGxJ-tseRTIT3bVhb-dGaEwt
 - https://drive.google.com/drive/folders/1S6BTMmz-cWiWVPY9vmxQfExmEbnXzvH7?fbclid=IwAR1dD73PCiXrCBkdMS-9uMy96o7Y5Fngi3XUgbcliIZCUwFA1VyGxVsNsZY
 - https://drive.google.com/drive/folders/1esRQpnf5lk51wvALCfQ9T1n2JUabYi1e?fbclid=IwAR0BNdpuCSO086CAgiOXWI7zzp5uWMovCWWIxdMk5KRc_wuBs9Q6UwCmTmA
+
+##L3 Acad :
+
+https://drive.google.com/drive/folders/17MKKSV3uBnyILv21sJVXku7KYeT8L3gO?usp=sharing https://drive.google.com/drive/folders/0Bxvw7vb1DdF_d3N1NFNPVlhlalE?resourcekey=0-P6-1yTFqEzmjwttIZzVHLQ&usp=sharing https://drive.google.com/drive/folders/1-1N1n6QoSa9Vk_ecf7BcLNtWev2PKEk7?usp=sharing https://drive.google.com/drive/folders/1IsupAVa1wrV9-J8ZEoCrIK7eu2dJz2TL?fbclid=IwAR0kT8-J4rtvE-oSqmvJLE0GWmMWHLEF5Jdzfz8IUzDitSGhJVAfqjXatsg
